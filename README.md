@@ -1,1 +1,0 @@
-# adam-petroc.github.io
